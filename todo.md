@@ -1,4 +1,0 @@
-# Plan Of Action
-
-
-
